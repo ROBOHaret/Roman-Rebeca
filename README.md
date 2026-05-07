@@ -1,1 +1,1 @@
-## Projects si obiecte/idei
+## Idei
